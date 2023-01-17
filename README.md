@@ -1,1 +1,3 @@
-# Garage-door-installation
+# Garage Door Installation
+While many DIY projects are fun and can save you money, you may want to think twice about installing your new garage door yourself. While it can be done, DIY garage door installation can be dangerous and cost just as much as paying a professional to do the same work.
+[Garage door installation](https://www.manchestergaragedoorpros.com/) isn't as simple as installing a regular door. Not only can it be difficult but it can also be dangerous. Installing a manual door is much easier than installing an automatic one because a manual one is so much lighter and doesn't require a motor or cables.
